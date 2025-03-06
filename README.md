@@ -15,4 +15,4 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-I AM A BROKe UNI STUDENT PLEASE HLEP ME
+Finally building shit. See you guys tomorrow.
